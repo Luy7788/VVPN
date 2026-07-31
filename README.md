@@ -1,27 +1,12 @@
 # VVPN
 目前收集到的几个好用又便宜的VPN
 
-# [xxyun - 66元 500G 不限时长&不限设备](https://xxyun.at/?code=8hidOXBh)
+# [良心云-超超超超级划算](https://xn--9kqz23b19z.com/#/register?code=bMxMEZTU)
 
-9折优惠码：xxyun
+ 
+### [注册链接🔗](https://xn--9kqz23b19z.com/#/register?code=bMxMEZTU)
+![](assets/17855125304647.jpg)
 
-85折优惠码（85好像不能用了）：xxyun85
+![](assets/17855125583404.jpg)
+![](assets/17855125677975.jpg)
 
-### [注册链接🔗](https://xxyun.at/?code=8hidOXBh)
-![](assets/17789186989369.jpg)
-
-![](assets/17789187500926.jpg)
-
-#### 测速 (不同环境不一定准确)
-
-![](assets/17789189886518.jpg)
-
-# [阿达西 - 3元20G一个月不限设备](https://adaxi.net/?r=156793)
-
-### [注册链接🔗](https://adaxi.net/?r=156793)
-
-![](assets/17789164903883.jpg)
-
-#### 测速 (不同环境不一定准确)
-
-![](assets/17789177347969.jpg)
